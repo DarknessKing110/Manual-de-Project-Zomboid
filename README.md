@@ -1,1 +1,1 @@
-Esse é um projeto que futuramente ira receber atualizações, adicionandddo novas coisas
+Esse é um projeto que futuramente ira receber atualizações, adicionando novas coisas
